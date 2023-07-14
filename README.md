@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- 📫 How to reach me: obikodova@yandex.ru
+- 📫 How to reach me: aobihodova@gmail.com
